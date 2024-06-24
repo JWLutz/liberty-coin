@@ -1,0 +1,1 @@
+Liberty Coin is a blockchain movement representing freedom and enlightment thinking principles and ideas on the Etherum network. It is a symbol of freedom of though, religion, and free interprise and encourages devolpments in the DeFi ecosystem and freedom within the blockchain from centralized control.
